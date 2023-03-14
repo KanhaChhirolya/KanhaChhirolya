@@ -15,7 +15,7 @@
 
 - 📫 Reach me at *kanha.chhirolya13@gmail.com*
 
-- 📄 Know more about me [Resume](https://www.canva.com/design/DAFcyyVjbik/-I9OvfMGz2aSrTfqItlYBw/view?utm_content=DAFcyyVjbik&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know more about me [Resume](https://drive.google.com/file/d/1rNZ55o16cVElOLcuvk3-qkILke4PbswF/view?usp=sharing)
 
 - ⚡ Fun fact - I love Writing 🖊️
 
